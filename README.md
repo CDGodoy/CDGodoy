@@ -2,7 +2,7 @@
 
  
 
-## I'm (Carlos Daniel Godoy)!
+## I'm Carlos Daniel Godoy!
 
  
 
